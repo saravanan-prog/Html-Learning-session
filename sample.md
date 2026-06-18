@@ -12,6 +12,9 @@
 ```
 
 ```
+  
   He was completed MCA on 2016 batch
+  He was completed hsc 2009
 
 ```
+
